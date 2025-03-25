@@ -1,6 +1,6 @@
 ## Hi, I'm Marian ✨
 
-🧠 Computer Science and Information Technology Major at NJIT <br/>
+🧠 Computer Science and Information Technology Grad <br/>
 👩🏼‍💻 I like to create different projects to practice different languages!<br>
 
 
